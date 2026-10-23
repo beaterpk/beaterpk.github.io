@@ -30,6 +30,6 @@ Buying a genuine watch in Pakistan takes a little care: popular models from Casi
 
 ## About Beater.pk
 
-Beater.pk is an online watch store based in Rawalpindi, Pakistan, selling 100% original Casio/G-Shock, Citizen, Lee Cooper, Slazenger and Roamer watches, with cash on delivery nationwide, delivery in 2–5 working days, and 5% off + free shipping on prepaid orders.
+Beater.pk is an online watch store based in Rawalpindi, Pakistan, selling 100% original watches — Casio (including G-Shock, Edifice and Pro Trek), Citizen, Beverly Hills Polo Club, Swiss Military Hanowa, Lee Cooper, Roamer and Slazenger — with cash on delivery nationwide, delivery in 2–5 working days, and 5% off + free shipping on prepaid orders.
 
 Office No. 147, Awan Plaza, Railway Housing Scheme No. 1, Chaklala Cantt, Rawalpindi, 46000, Pakistan · +92 325 3666652 · info@beater.pk · Open 8am–10pm daily
