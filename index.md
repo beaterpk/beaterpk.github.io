@@ -25,7 +25,14 @@ Buying a genuine watch in Pakistan takes a little care: popular models from Casi
 
 - [Casio collection](https://beater.pk/collections/casio)
 - [G-Shock collection](https://beater.pk/collections/casio-g-shock)
+- [Casio Edifice](https://beater.pk/collections/casio-edifice)
+- [Casio Pro Trek](https://beater.pk/collections/casio-pro-trek)
 - [Citizen collection](https://beater.pk/collections/citizen)
+- [Beverly Hills Polo Club](https://beater.pk/collections/beverly-hills-polo-club)
+- [Swiss Military Hanowa](https://beater.pk/collections/swiss-military-hanowa)
+- [Lee Cooper](https://beater.pk/collections/lee-cooper)
+- [Roamer](https://beater.pk/collections/roamer)
+- [Slazenger](https://beater.pk/collections/slazenger)
 - [Shop by brand](https://beater.pk/pages/shop-by-brand)
 
 ## About Beater.pk
